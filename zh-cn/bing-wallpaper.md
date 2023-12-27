@@ -1,4 +1,20 @@
 ## Bing Wallpaper
+2023-12-27 | [教堂山，斯奈山半岛，冰岛 (© Ratnakorn Piyasirisorost/Getty Images)](https://cn.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-26 | [冬季日出，戴德姆，科尔切斯特，英格兰 (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-25 | [驯鹿在雪中奔跑，阿拉斯加，美国 (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-24 | [市政厅广场，塔尔图，爱沙尼亚 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-23 | [帽带企鹅，南桑威奇群岛，南大西洋 (© Jan Vermeer/Minden Pictures)](https://cn.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-22 | [天鹅泉湿地公园，伊犁，新疆，中国 (© 500px Asia/Getty images)](https://cn.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-21 | [卢布尔雅那，斯洛文尼亚共和国 (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-12-20 | [圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利 (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2023-12-19 | [城堡广场的圣诞树，华沙古城，波兰 (© Panther Media GmbH/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2023-12-18 | [圆顶礁国家公园，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
