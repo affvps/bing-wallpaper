@@ -1,4 +1,66 @@
 ## Bing Wallpaper
+2024-02-18 | [The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-17 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-15 | [Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-14 | [Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-13 | [Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantTortoise_EN-US7034846255_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-12 | [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-11 | [Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-10 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-09 | [Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-08 | [St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)](https://cn.bing.com/th?id=OHR.StJamesPool_EN-US8700038796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-07 | [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-06 | [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://cn.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-05 | [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-04 | [Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-03 | [Marmot peeking out of its burrow (© Scacciamosche/Getty Images)](https://cn.bing.com/th?id=OHR.AlpineMarmot_EN-US6895103237_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-02 | [Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)](https://cn.bing.com/th?id=OHR.DizzyGillespie_EN-US7637800342_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-02-01 | [Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://cn.bing.com/th?id=OHR.ZebraMother_EN-US7544209908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-31 | [Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-30 | [Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://cn.bing.com/th?id=OHR.GollingerFalls_EN-US7184224692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-29 | [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-28 | [Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)](https://cn.bing.com/th?id=OHR.WinterCarnival_EN-US6859361078_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-27 | [Northern hawk-owl (© Remo Savisaar/Alamy)](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-26 | [Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.DwynwensDay_EN-US2844762878_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-25 | [Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.IcelandBeach_EN-US2647667820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-24 | [Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)](https://cn.bing.com/th?id=OHR.MaldivesAtolls_EN-US2498947967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-23 | [Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SantaCruzSunrise_EN-US6436233856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-22 | [Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-21 | [Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-20 | [Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)](https://cn.bing.com/th?id=OHR.PlitviceWinter_EN-US1870468945_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2024-01-19 | [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://cn.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-01-18 | [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-01-17 | [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
