@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2026-03)
-![](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&w=1000)Today: [乌尔姆市政厅的���文钟, 德国 (© Tomekbudujedomek/Getty Images)](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&w=1000)Today: [乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-03-08 [download 4k](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-03-08 [download 4k](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2026-03-07 [download 4k](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
