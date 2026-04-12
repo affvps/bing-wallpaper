@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-04-12 | [城市灯光在下方��过, 拍摄于国际空间站 (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-12 | [城市灯光在下方划��, 拍摄于国际空间站 (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-12 | [城市灯光在下方划过, 拍摄于国际空间站 (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
